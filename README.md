@@ -6,4 +6,6 @@
 
 - 😄 Pronouns: her/she
 
+- Eu estudo no Senac
+
 -->
